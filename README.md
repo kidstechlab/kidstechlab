@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kidstechlab
+- 👀 Introducing children to the world of STEM through engaging, hands-on activities that foster critical thinking and problem-solving skills. ​
+- 🌱 Developing innovative methods to inspire curiosity and creativity in children, encouraging trial and error as essential elements in their development. ​
+- 💞️ Looking to collaborate on projects that integrate coding, electronics, and robotics to create real-world challenges for children, enhancing their learning experience. ​
+- 📫 How to reach me: Please visit our contact page at info@kidstechlab.com
+- 😄 Pronouns: Kids Tech Lab​
+- ⚡ Fun fact: We have over 20 years of experience in consumer electronics industry, bringing a wealth of knowledge to our programs
